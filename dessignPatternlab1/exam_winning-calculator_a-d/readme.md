@@ -1,0 +1,1 @@
+Se lab_winning_calculator_beskrivning.pdf för laborations beskrivning.
